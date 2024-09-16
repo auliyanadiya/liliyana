@@ -18,14 +18,4 @@ Lifelong Learner, currently working as budagh kompeni.
     - :game_die: Drawing are part of me. </br>
 <p>
  
-### <summary><strong>Let's connect!</strong></summary>
-<a href="https://twitter.com/https://x.com/alatralalaa?t=agI55WVl2uOH1eGJ_yN3tw&s=08">
-  <img align="left" alt="Goo's Twitter" width="20px" src="https://x.com/alatralalaa?t=agI55WVl2uOH1eGJ_yN3tw&s=08" />
-</a>
-<a href="https://www.instagram.com/[yours](https://www.instagram.com/auliyanadiya_?igsh=cHBhdmk3cDFxbW9k)/">
-  <img align="left" alt="Goo's Instagram" width="20px" src="(https://www.instagram.com/auliyanadiya_?igsh=cHBhdmk3cDFxbW9k)" />
-</a>
-<a href="https://yours.com/">
-  <img align="left" alt="Goo's Blog" width="20px" src="https://simpleicons.now.sh/blogger/495f7e" />
-</a>
 
